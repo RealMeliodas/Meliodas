@@ -1,2 +1,2 @@
 # Meliodas
-Benvenuto sul mio profilo!^^
+Welcome to my profile!
